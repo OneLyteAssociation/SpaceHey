@@ -1,4 +1,4 @@
-``` From: OneLyte Management via Freescout (Management@OneLyte.uk) ``` 
+``` From: The OneLyte Association - Management (Management@OneLyte.uk) ``` 
 
 ``` To: Anton Rohm (hi@anthemaker.com) ```
 
