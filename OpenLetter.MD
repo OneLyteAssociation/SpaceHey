@@ -22,7 +22,7 @@ In 2024, my first account on your site, ShrinelinkXD, was wrongfully terminated 
 As I mentioned in the first paragraph, there have been several vigilante efforts to moderate your site that you've taken as an offence. Sorry to break this to ya, but OF COURSE there's gonna be vigilante efforts to moderate your site if you can't do it yourself. 
 
 ### 4. Your Way Out
-I myself, am a very forgiving person, as is my organization. That is why I am willing to talk with you or anyone else on your moderation team via any means, whenver you want. This is your final chance at redemption - if you convince me that the work is being done to fix your site, as well as unbanning who shouldn't have been banned in the first place, I WILL DROP ALL MY ACCUSATIONS AGAINST YOUR SITE AND CEASE THE INVESTIGATION. I'm trying to end this as nicely as I can, and if you don't take tthat offer, then it's on you from there-on-out. My contact details are as follows:
+I myself, am a very forgiving person, as is my organization. That is why I am willing to talk with you or anyone else on your moderation team via any means, whenver you want. This is your final chance at redemption - if you convince me that the work is being done to fix your site, as well as unbanning who shouldn't have been banned in the first place, I WILL DROP ALL MY ACCUSATIONS AGAINST YOUR SITE AND CEASE THE INVESTIGATION WITH NEAR IMMEDIATE EFFECT. I'm trying to end this as nicely as I can, and if you don't take tthat offer, then it's on you from there-on-out. My contact details are as follows:
 
 * Telegram: @LMNSENCE
 * Discord: luma.ini
