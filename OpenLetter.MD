@@ -27,6 +27,7 @@ I myself, am a very forgiving person, as is my organization. That is why I am wi
 * Telegram: @LMNSENCE
 * Discord: luma.ini
 * Email: thomas.hall@onelyte.uk
+* You may also open an issue on GitHub if you are reading from there (https://github.com/OneLyteAssociation/SpaceHey/)
 
 Until then, me and my team shall continue.
 
